@@ -20,7 +20,7 @@ What makes this EA special is its impressive historical performance — includin
 
 Optimized for ECN accounts, Gold ISIS EA is ideal for disciplined traders looking for long-term gains in the gold market.
 
-[Download Gold ISIS EA]([url](https://mql5cracked.com/product/gold-isis-ea-download/)) 
+[Download Gold ISIS EA](https://mql5cracked.com/product/gold-isis-ea-download/)
 
 ----------------------------
 
